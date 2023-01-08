@@ -1,5 +1,4 @@
-# References
 
-* octocat 1 😈# References
+not put job experience on top 
+place personal statement first 
 
-* octocat 1 😈
